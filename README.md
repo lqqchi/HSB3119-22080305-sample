@@ -1,7 +1,8 @@
 
-
 # Title of my website
+
 áedrtfgyhuijkopl[;sdrftgyhuijkol
+
 #Chaper 2
 
 Stategic planning is the process of developing and maintaining a strategic fit between the organization’s goals and capabilities, and its changing mkt oppotuinies
